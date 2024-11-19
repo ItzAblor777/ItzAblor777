@@ -2,7 +2,7 @@
 - 👀 I’m interested in creating BIG things
 - 🌱 I’m currently learning Software Engineering
 - 💞️ I’m looking to collaborate on Many upcoming projects
-- 📫 How to reach me ... 0240053426 / 0266834041
+- 📫 How to reach me ... +233240053426 / +233266834041 / itzablor@gmail.com
 - 😄 Pronouns: He / Him
 - ⚡ Fun fact: I'm Smart AF!!! and I just recently found out.
 
