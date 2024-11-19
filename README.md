@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ItzAblor777
+- 👋 Hi, I’m Ablor
 - 👀 I’m interested in creating BIG things
 - 🌱 I’m currently learning Software Engineering
 - 💞️ I’m looking to collaborate on Many upcoming projects
